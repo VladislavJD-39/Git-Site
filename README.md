@@ -7,4 +7,4 @@
 
 # СПАСИБО!
 
-![Скриншот](image.png)
+![Скриншот](https://sun9-24.userapi.com/impf/c834300/v834300826/3c255/Bu-LO_Hso_g.jpg?size=800x1200&quality=96&sign=ab4de53993fb23b5808be9c21b344a16&type=album)
